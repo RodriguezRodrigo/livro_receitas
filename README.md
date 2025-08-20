@@ -2,6 +2,7 @@
 
 
 Ingredientes (rende cerca de 6 a 8 panquecas)
+
 Para a Massa:
 
 1 xícara (chá) de farinha de trigo
