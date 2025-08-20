@@ -2,8 +2,6 @@
 
 
 
-Olá! Bem vindo ao meu livro de receitas :wave:
-
 Panqueca de Carne Moída
 Ingredientes (rende cerca de 6 a 8 panquecas)
 Para a Massa:
