@@ -1,8 +1,6 @@
-# Livro de Receitas :man_cook:
+# Panquecas de carne moída :man_cook:
 
 
-
-Panqueca de Carne Moída
 Ingredientes (rende cerca de 6 a 8 panquecas)
 Para a Massa:
 
