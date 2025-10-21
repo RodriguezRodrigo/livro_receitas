@@ -29,6 +29,3 @@
 ​	**6.** Use o molho e recheio de sua preferência na panqueca.
 
 ​	**7.** Aqueça no forno antes de servir.
-
-    ##Funcionou
-
